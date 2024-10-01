@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Space Tech and Computer Fusion 
 - 📫 How to reach me souravbohra20@gmail.com
 - 😄 Pronouns: HE/HIM
-- ⚡ Fun fact: Cute
+- ⚡ Fun fact: I am Libra
 
 <!---
 SouravBohra/SouravBohra is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
